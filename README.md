@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Ramsirambo
 - 👀 I’m interested in ... GitHub 
-- 🌱 I’m currently learning ... create links 
+- 🌱 I’m currently learning ...  to create links 
 - 💞️ I’m looking to collaborate on ... any one 
 - 📫 How to reach me ... kiprutoemmanuel257@gmail.com
 - 😄 Pronouns: ...
